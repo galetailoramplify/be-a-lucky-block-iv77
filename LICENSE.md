@@ -1,4 +1,4 @@
-#  
+#  Experience be a lucky block like never before with custom Script for be a lucky block, the #1 Script. Includes no cooldown and private server access
 
 
 
